@@ -1,0 +1,2 @@
+# adityaastroworld
+My Self  Astrologer, Palmist Numerologist, Face &amp; Body Reader, Vastu Consultant, Rudraksh Therapist This is only Astrology, Palmistry, Numerology and other branches of spiritual science like Face Reading, Hand Writing Analysis, Body Signs Analysis, Physical Traits Analysis, Foot Lines Analysis, Meditation, Yoga etc where you will get reply of those typically confused &amp; complex questions which normally you failed to get solve or be solved. 
